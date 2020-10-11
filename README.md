@@ -4,3 +4,4 @@
 hoho  這是海邊人的腳印....
 
 ### 單純是很重要的 ###
+https://hackmd.io/@PJuZrIHJTdSxrKfvZ_Ygwg/SkFSoFlww
